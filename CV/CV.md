@@ -4,7 +4,7 @@ Dallas Tx, 75205 • (214)-xxx-xxxx • jxxxx@smu.edu
 
 - - -
 
-##### Professional Summary
+## Professional Summary
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;A results-oriented leader who balanced the organization of personnel, time management, for on-going projects and new projects, and inventory management to ensure a fully functioning and operational team. Equally  capable of working alone or as a member of a team, and comfortable exercising initiative, using critical thinking, and solving problems. Obtained and maintain an active SECRET security clearance.
 
 #### Experience
